@@ -1,0 +1,1 @@
+Reharika and harini are so close friends. They both crack jokes.
